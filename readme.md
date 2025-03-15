@@ -129,5 +129,5 @@ Feel free to fork this project, submit issues, or create pull requests!
 ---
 
 ### **Contact**
-For questions or collaborations, reach out at [your-email@example.com].
+For questions or collaborations, reach out at [mamta1998gola@gmail.com], [prabhat5172992@gmail.com].
 
